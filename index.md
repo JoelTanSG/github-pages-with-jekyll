@@ -1,3 +1,7 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+The Beginning of my Journey into the unknown
+will I burn out?
+how far should I go before I should stop?
+Important questions to ask
+Hard to answer.
